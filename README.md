@@ -1,37 +1,31 @@
-## Welcome to GitHub Pages
+# [@MistAstley on twitter](https://twitter.com/MistAstley)<br/>
+please follow her
+<br/>
+<br/>
+# This page is dumb so ignore it.<br/>
+## You are probably wondering what you are doing here.<br/>
+### This is a website of a retard called YAYO
+### Sometimes i will do some changes. But remember im autistic so...
 
-You can use the [editor on GitHub](https://github.com/JAJECZK0/jajeczko.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Here is a dancing Kirby but stolen one lol.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+![kirbyjam](https://user-images.githubusercontent.com/54854992/126005718-f8f2fee2-e25d-480b-a587-dda57a0fea42.gif)
+<br/>
+check my [twitter](https://twitter.com/hornymanxmaster) heh<br/>
+if you want to check all of my python projects go [there](https://github.com/XMASTEr1432/python-code)<br/>
+if you want to check my *my trash bin* named **other** go [there](https://github.com/XMASTEr1432/other)<br/>
+also [github profile](https://github.com/XMASTEr1432/) haha<br>
+oh and you can check my discord [server](https://discord.gg/yACNHhjUz2)
+<br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
+for dumb me in future
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
+```git
+git pull origin main
+git add --all
+git commit -m "cool change"
+git push origin main
 ```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/JAJECZK0/jajeczko.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+oh<br/>
+what are you doing here<br/>
+you are not supposed to be here<br/>
+ok watch [this](/video.html) or something<br/>
