@@ -1,1 +1,5 @@
 theme: jekyll-theme-minimal
+github:
+  is_project_page: false
+  show_downloads: false
+  author: just a website
