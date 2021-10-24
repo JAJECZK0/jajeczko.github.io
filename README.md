@@ -18,4 +18,4 @@ Here is a dancing Kirby but stolen one lol.
 oh<br/>
 what are you doing here<br/>
 you are not supposed to be here<br/>
-ok watch [this](/video.html) or something<br/>
+ok look at [this](https://ilysomuch.com/) or something<br/>
