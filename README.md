@@ -4,7 +4,7 @@ please follow me
 <br/>
 # This page is dumb so ignore it.<br/>
 ## You are probably wondering what you are doing here.<br/>
-<h3>This is a website of a retard <h4>(true)</h4> called YAYO</h3>
+### This is a website of a retard called YAYO
 ### Sometimes i will do some changes. But remember im autistic so...
 
 # **funny meme haha**
