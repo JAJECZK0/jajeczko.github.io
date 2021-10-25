@@ -12,8 +12,30 @@ please follow me
 ![twoja mama](https://i.ytimg.com/vi/vhl9wWLv2Yo/maxresdefault.jpg)
 
 ![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
-
-<br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
+![twoja babcia](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)
 
 
 
