@@ -13,8 +13,3 @@ what are you doing <br/>
 you are not supposed to...<br/>
 take a look at [this](https://www.youtube.com/watch?v=dQw4w9WgXcQ) or [this](http://ilysomuch.com)<br/>
 
-<style>
-    body {
-        background-image: url('https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif');
-    }
-</style>
