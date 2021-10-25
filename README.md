@@ -10,7 +10,7 @@ please follow me
 # **funny meme haha**
 
 ![twoja mama](https://i.ytimg.com/vi/vhl9wWLv2Yo/maxresdefault.jpg)
-<iframe frameborder="0" height="1530" width="64" scrolling="no" src="gif.html" align="center"></iframe>
+<iframe frameborder="0" scrolling="no" src="gif.html" align="center"></iframe>
 
 
 oh<br/>
