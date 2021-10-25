@@ -10,10 +10,10 @@ please follow me
 # **funny meme haha**
 
 ![twoja mama](https://i.ytimg.com/vi/vhl9wWLv2Yo/maxresdefault.jpg)
-<iframe align="center" height="2295" width="51" frameborder="0" scrolling="no" src="gif.html"></iframe>
+<iframe align="center" height="1020" width="51" frameborder="0" scrolling="no" src="gif.html"></iframe>
 
 
 oh<br/>
 what are you doing <br/>
 you are not supposed to...<br/>
-take a look at [this](https://www.youtube.com/watch?v=dQw4w9WgXcQ) or idk<br/>
+take a look at [this](https://www.youtube.com/watch?v=dQw4w9WgXcQ) or [this](http://ilysomuch.com)<br/>
