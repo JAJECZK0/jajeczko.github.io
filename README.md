@@ -4,10 +4,10 @@ please follow me
 <br/>
 # This page is dumb so ignore it.<br/>
 ## You are probably wondering what you are doing here.<br/>
-### This is a website of a retard called YAYO
+### This is a website of a retard (true) called YAYO
 ### Sometimes i will do some changes. But remember im autistic so...
 
-Here is a dancing Kirby but stolen one lol.
+funny meme haha
 
 ![twoja mama](https://i.ytimg.com/vi/vhl9wWLv2Yo/maxresdefault.jpg)
 <br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
