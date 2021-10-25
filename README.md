@@ -9,7 +9,7 @@ please follow me
 
 Here is a dancing Kirby but stolen one lol.
 
-![kirbyjam](https://user-images.githubusercontent.com/54854992/126005718-f8f2fee2-e25d-480b-a587-dda57a0fea42.gif)
+![twoja mama](https://i.ytimg.com/vi/vhl9wWLv2Yo/maxresdefault.jpg)
 <br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
 
 
