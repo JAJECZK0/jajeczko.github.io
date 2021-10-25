@@ -1,5 +1,3 @@
-<body { background-image:url('myImage.gif'); background-repeat:repeat; }>
-
 # This page is dumb so ignore it.<br/>
 ## You are probably wondering what you are doing here.<br/>
 ### This is a website of a retard called YAYO
@@ -14,4 +12,3 @@ oh<br/>
 what are you doing <br/>
 you are not supposed to...<br/>
 take a look at [this](https://www.youtube.com/watch?v=dQw4w9WgXcQ) or [this](http://ilysomuch.com)<br/>
-</body>
