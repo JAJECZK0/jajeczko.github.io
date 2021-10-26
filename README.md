@@ -7,7 +7,8 @@
 
 <iframe align="center" height="800" width="100%" frameborder="0" scrolling="no" src="gif.html"></iframe>
 [![bg](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)](/gif.html)
-<-CLICK THIS[download](https://user-images.githubusercontent.com/93093612/138917155-ceae6f5b-4b6a-43bc-a9c7-118243987260.jpg)
+<-CLICK THIS[download]![download](https://user-images.githubusercontent.com/93093612/138917948-620f1919-63dc-4ca0-922d-a40e3e34f987.jpg)
+
 
 oh<br/>
 what are you doing <br/>
