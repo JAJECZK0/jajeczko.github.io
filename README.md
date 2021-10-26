@@ -7,7 +7,7 @@
 
 <iframe align="center" height="800" width="100%" frameborder="0" scrolling="no" src="gif.html"></iframe>
 [![bg](https://media.discordapp.net/attachments/884773170370969610/901920660299849828/ezgif.com-gif-maker_1.gif)](/gif.html)
-< < < 🌭click here🌭
+<- 🌭click here🌭
 
 
 
