@@ -1,6 +1,6 @@
 # This page is 🌭Sousage🌭 so ignore it.<br/>
 ## You are probably 🌭Sousaging🌭 what you are doing here.<br/>
-### This is a website of a 🌭Sousage🌭 called YAYO
+### This is a website of a 🌭Sousage🌭 called SousageMaster
 ### Sometimes i will do some Sousage. But remember im **autistic** so...
 
 # 🌭**Sousage**🌭
